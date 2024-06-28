@@ -2,7 +2,7 @@
 - 👀 I’m interested in nothing,maybe.
 - 🌱 I’m currently learning EE
 - 💞️ I’m looking to collaborate on learning IC and CS
-- 📫 How to reach me Yaochen0712@outlook.com
+- 📫 How to reach me Ycyaochen0712@outlook.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: A FW of UESTC
 
